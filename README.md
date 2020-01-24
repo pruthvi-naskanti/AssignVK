@@ -2,9 +2,9 @@
 
 Virat Kohli, an indian cricketer who has been playing for Indian cricket team from the last decade is regarded as one the best cricketers the world has ever seen. He is popularly known as Run Machine in international cricket.
 
-[Stats of Virat](http://www.cricmetric.com/playerstats.py?player=V%20Kohli&format=all&role=all)
-
 ![Virat](https://imagevars.gulfnews.com/2019/10/23/Virat-Kohli-_16df8cce452_large.jpg)
+
+[Stats of Virat](http://www.cricmetric.com/playerstats.py?player=V%20Kohli&format=all&role=all)
 
 ## *Personal Life*
 
