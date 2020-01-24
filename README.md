@@ -8,6 +8,8 @@ Virat Kohli, an indian cricketer who has been playing for Indian cricket team fr
 
 ![Virat](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTdCWvryCSeDdQABdk_UQQ_1KdxLoLFmeiDda2RrgEIY_6wRIVY&s)
 
+[Click Here for more details](https://www.thefamouspeople.com/profiles/virat-kohli-7388.php)
+
 1. Virat Kohli was born on 5th November 1988 in Delhi, India.
 2. Kohli has done his schooling from Vishal Bharti Public School in Delhi.
 3. Virat started playing for Delhi in 2002 representing Under-15 team.
@@ -18,6 +20,8 @@ Virat Kohli, an indian cricketer who has been playing for Indian cricket team fr
 ## *Achievements*
 
 ![ODI](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRl6UADrmPI8ysaMCvQSwGtP8XrdA3wHLttC9kwJR6GmxZ64JwX&s)
+
+[More achievements of Kohli](https://www.kreedon.com/10-virat-kohli-achievements/)
 
 * Virat Kohli received the Arjun Award in 2013 for his achievemrnts in international cricket.
 * He has won the ICC ODI player of the year in 2012 ans also BCCI's international cricketer of the year for two years consequently. 
