@@ -17,9 +17,9 @@ Virat Kohli, an indian cricketer who has been playing for Indian cricket team fr
 3. Virat started playing for Delhi in 2002 representing Under-15 team.
 
 ## *Career*
-4. Later in 2006, due to his consistent performances earned him a place in india's Under-19 squad.
-5. In 2008, kohli was selected to Indian ODI team and earned a permanent place in thw squad till date.
-6. Recently in 2017, virat got married to bollywood actress Anushka Sharma at Borgo Finocchieto in Tuscany, Italy.
+1. Later in 2006, due to his consistent performances earned him a place in india's Under-19 squad.
+2. In 2008, kohli was selected to Indian ODI team and earned a permanent place in thw squad till date.
+3. Recently in 2017, virat got married to bollywood actress Anushka Sharma at Borgo Finocchieto in Tuscany, Italy.
 
 ## *Achievements*
 
